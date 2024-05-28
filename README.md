@@ -1,6 +1,6 @@
 # Natural ou Fake Natty? Como Vencer na Era das IAs Generativas
 
-## 🚀 Introdução
+## 🚀 Explorando IAs Generativas
 
 > Woooow! Look at this 👀
 
